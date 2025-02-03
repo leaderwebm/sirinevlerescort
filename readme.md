@@ -1,1 +1,1 @@
-# <a href=https://askdoluanlar.xyz/yamac>Beylikdüzü Escort Tıkla</a>  <img src=https://resmim.net/cdn/2025/01/29/DpjCSq.md.png alt=Escort style=max-width: 100%; border: 2px solid #ddd; border-radius: 10px;>lgiyi en iyi escortları bulun.
+# <a href=https://askdoluanlar.xyz/yamac>Şirinevler Escort Tıkla</a>  <img src=https://resmim.net/cdn/2025/01/29/DpjCSq.md.png alt=Escort style=max-width: 100%; border: 2px solid #ddd; border-radius: 10px;>lgiyi en iyi escortları bulun.
